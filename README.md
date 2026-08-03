@@ -1,6 +1,8 @@
 
 • Discord Claimer
 
+• Discord Monitor
+
 PRICING OPTIONS
 
 $5  → 1 Day Access

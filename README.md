@@ -3,7 +3,6 @@
 
 • Discord Monitor
 
-PRICING OPTIONS
 
 Join /xbs and make a ticket
 

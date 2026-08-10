@@ -5,13 +5,7 @@
 
 PRICING OPTIONS
 
-$5  → 1 Day Access
-
-$15 → 1 Week Access
-
-$40 → 1 Month Access
-
-$65 → 2 Month Access
+Join /xbs and make a ticket
 
 
 Discord:4yl
